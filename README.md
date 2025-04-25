@@ -1,0 +1,1 @@
+# centralpravidla.cz
